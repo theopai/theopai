@@ -1,4 +1,4 @@
-### Olá para homens, mulheres vão se ferrar ❤
+### Olá para homens, mulheres vão se ferrar 🖤
 
 Meu nome é Vinicius Theodoro
 
